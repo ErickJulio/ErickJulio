@@ -17,7 +17,7 @@
 
 
 
-- **LinkedIn**: [Erick Julio](https://www.linkedin.com/in/ericksantos)
+- **LinkedIn**: [Erick Julio](https://www.linkedin.com/in/erick-julio-381a6b202)
 
 
 
